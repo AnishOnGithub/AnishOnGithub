@@ -17,4 +17,5 @@ I’m always looking for opportunities to learn and grow. If you have any advice
 
 You can reach me at:
 email: anish.taklikar07@gmail.com
+
 linkedin: https://www.linkedin.com/in/anish-taklikar-448217299/
