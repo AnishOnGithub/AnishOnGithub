@@ -9,7 +9,7 @@ Currently Learning:
 Java
 
 Interests:
-Web Development
+Web Development &
 Blockchain
 
 Eager to Learn,
