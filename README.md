@@ -12,6 +12,9 @@ Interests:
 Web Development &
 Blockchain
 
+Designing tool:
+Figma, Canva, Kittl
+
 Eager to Learn,
 I’m always looking for opportunities to learn and grow. If you have any advice, insights, or tips to share, I’d love to hear from you!
 
