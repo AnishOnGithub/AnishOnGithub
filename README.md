@@ -5,8 +5,7 @@ Completed:
 HTML, CSS, JavaScript
 C Programming
 
-Currently Learning:
-Java
+
 
 Interests:
 Web Development &
